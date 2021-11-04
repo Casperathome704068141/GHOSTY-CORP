@@ -1,0 +1,2 @@
+# GHOSTY-CORP
+Safe space 
